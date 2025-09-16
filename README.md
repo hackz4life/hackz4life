@@ -38,7 +38,7 @@
 
   Please be patient with me, as I am usual a busy person and may not respond immediately if I don't know you well, we aren't friends, etc.
 
-  Refrain from interacting with me if you are below 13, unless you are already my friend, or friends of friends.
+  Refrain from interacting with me if you are below 14, unless you are already my friend, or friends of friends.
 
   Please note!! I may come off as rude or I forget the use of tonetags, please just remind me or if you need them! Thank you.
 
@@ -46,6 +46,8 @@
 
   I tend to get violent spurrs or Tendicies, I'd prefer you be on extreme caution when this happens. I will not hold back anything, and mostly come off as rude. 
 
+
+  [ PLEASE DO NOTE. ] I don't have any form of OSDD | ODD. I simply just like to refer myself as characters I enjoy and kin. Thank you.
 <!--
 **hackz4life/hackz4life** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
