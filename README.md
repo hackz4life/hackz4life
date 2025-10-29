@@ -46,7 +46,7 @@
 
   DO NOT talk to me if I have unfriended you, it was for a good reason, the world will keep spinning without me. I assure you.
 
-  I tend to get violent spurrs or Tendicie, I'd prefer you be on extreme caution when this happens. I will not hold back anything, and mostly come off as rude. 
+  I tend to get violent spurrs, I'd prefer you be on extreme caution when this happens. I will not hold back anything, and mostly come off as rude. 
 
 
   [ PLEASE DO NOTE. ] I don't have any form of OSDD | ODD. I simply just like to refer myself as characters I enjoy and kin. Thank you.
