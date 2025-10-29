@@ -32,9 +32,11 @@
 
 ദ്ദി‎◍˃ ᵕ ˂◍)
 
-  hi! Call me Seven or Vendetta, either or, most likely I prefer Seven though. Pleased to meet you, I enjoy spending my time on ponytown, which is where you most likely just found me.
+  hi! Call me Seven or TEMPRR, either or, most likely I prefer my most common name (Seven) though. Pleased to meet you, I enjoy spending my time on ponytown, which is where you most likely just found me.
 
   I block/hide without given warning, nor do you need an explanation as to WHY I am blocking you. Trust me, you'll live.
+
+  I do not do the concept of mutuals, my list is reserved, thank you.
 
   Please be patient with me, as I am usual a busy person and may not respond immediately if I don't know you well, we aren't friends, etc.
 
@@ -44,7 +46,7 @@
 
   DO NOT talk to me if I have unfriended you, it was for a good reason, the world will keep spinning without me. I assure you.
 
-  I tend to get violent spurrs or Tendicies, I'd prefer you be on extreme caution when this happens. I will not hold back anything, and mostly come off as rude. 
+  I tend to get violent spurrs or Tendicie, I'd prefer you be on extreme caution when this happens. I will not hold back anything, and mostly come off as rude. 
 
 
   [ PLEASE DO NOTE. ] I don't have any form of OSDD | ODD. I simply just like to refer myself as characters I enjoy and kin. Thank you.
